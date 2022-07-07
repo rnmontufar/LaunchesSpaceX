@@ -2,7 +2,7 @@
 
 ## Screenshot 
 
-![LaunchesSpaceX](https://drive.google.com/file/d/1D7VeBzG1SU2W9sVPFdq1dE5C0KEIZFkb/view?usp=sharing)
+![LaunchesSpaceX](https://drive.google.com/uc?id=1D7VeBzG1SU2W9sVPFdq1dE5C0KEIZFkb)
 
 
 ## Stories:
